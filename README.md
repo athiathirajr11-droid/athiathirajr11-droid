@@ -1,6 +1,6 @@
 # ✨ Golden Glow Jewellery
 
-Welcome to **Golden Glow Jewellery**, where timeless elegance meets exceptional craftsmanship. Located in **Mannarkkad, Palakkad, Kerala**, we offer a beautiful collection of jewellery designed to make every occasion memorable.
+Welcome to **Golden Glow Jewellery**(https://goldenglow.xo.je/), where timeless elegance meets exceptional craftsmanship. Located in **Mannarkkad, Palakkad, Kerala**, we offer a beautiful collection of jewellery designed to make every occasion memorable.
 
 ## 💎 About Us
 
@@ -29,12 +29,11 @@ Golden Glow Jewellery is dedicated to providing high-quality gold, diamond, and 
 * Beautiful Craftsmanship
 
 ## 📍 Location
-
-**Golden Glow Jewellery**
+**Golden Glow Jewellery**(https://goldenglow.xo.je/)
 Mannarkkad, Palakkad, Kerala, India
 
 ---
 
 ### ✨ Every Jewellery Tells a Story.
 
-**Golden Glow Jewellery** – Crafted with Trust, Elegance & Excellence.
+**Golden Glow Jewellery**(https://goldenglow.xo.je/) – Crafted with Trust, Elegance & Excellence.
